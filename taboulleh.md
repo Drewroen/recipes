@@ -2,15 +2,16 @@
 Gluten Free [Taboulleh](https://en.wikipedia.org/wiki/Tabbouleh)
 
 ## Recipe
-* 1 cup ***quinoa***
+* 2 cups ***quinoa***
 * 1 cup ***fresh parsley***, chopped
 * 5 ***green onions***, chopped
-* 2 cups ***small grape tomatoes***, cut in half
+* 2 cups ***small grape tomatoes***, cut in half or 1-2 ***tomatoes***, diced
 * 1 ***cucumber***, peeled and seeded, thinly sliced
 * Juice from 1 ***lemon***
 * 1/3 cup ***extra-virgin olive oil***
 * 1/4 teaspoon ***salt***
 * 1/8 teaspoon ***black pepper***
+* (OPTIONAL) 6 oz of ***crumbled feta cheese***
 * (OPTIONAL) ***Crushed red Chile flakes***
 * (OPTIONAL) ***Hummus*** for serving
   * Note: I like Roasted Red Pepper Hummus with it, but whatever sounds good
